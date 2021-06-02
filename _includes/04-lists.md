@@ -1,2 +1,2 @@
-* Books :Mind:
-* Food :Joey:
+* Books 🖤:
+* Food 😄:
